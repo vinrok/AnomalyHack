@@ -14,4 +14,4 @@ Hackmakers hackathon
 
 
 
-## Here is the link to [Youtube](https://youtu.be/k9ndUcYSnr4) and [Youtube with explanation](https://youtu.be/aEVt_i-_B60)
+## Here is the link to [Video](https://youtu.be/k9ndUcYSnr4) and [Video with explanation](https://youtu.be/aEVt_i-_B60)
